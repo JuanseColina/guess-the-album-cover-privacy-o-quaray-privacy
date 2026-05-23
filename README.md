@@ -1,1 +1,1 @@
-# guess-the-album-cover-privacy-o-quaray-privacy
+# guess-the-album-cover-privacy-o-quarahy-privacy
